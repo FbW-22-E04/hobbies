@@ -8,4 +8,4 @@ There are many different yoga styles, ranging from gentle practices to physicall
 
 Yoga and two practices of Chinese origin—tai chi and qi gong—are sometimes called “meditative movement” practices. All three practices include both meditative elements and physical ones. 
 
-*** Stay healthy!***
+***Stay healthy!***
